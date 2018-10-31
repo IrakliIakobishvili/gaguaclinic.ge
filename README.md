@@ -1,1 +1,0 @@
-# gaguaclinic.ge
